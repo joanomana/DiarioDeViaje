@@ -5,3 +5,6 @@ Tokio, la ajetreada capital de Japón, mezcla lo ultramoderno y lo tradicional, 
 
 ## Recomendacion
 Visitar el palacio imperial y los distintos museos de la ciudad
+
+## Foto
+![]https://viajes.nationalgeographic.com.es/medio/2024/09/03/tokio_133ce43a_1284581217_240903122054_1280x854.jpg

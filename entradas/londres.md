@@ -5,3 +5,6 @@ Londres, la capital de Inglaterra y del Reino Unido, es una ciudad del siglo XXI
 
 ## Recomendacion
 Visitar el Big Ben, la Abadia de Westminster y los principales parques
+
+## Foto
+![]https://cdn2.civitatis.com/reino-unido/londres/guia/londres-nuit

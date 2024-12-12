@@ -7,7 +7,7 @@ Nueva York incluye 5 distritos que se ubican donde el río Hudson desemboca en e
 Visitar manhattan y la estatua de la libertad
 
 ## Foto
-![]https://t1.gstatic.com/licensed-image?q=tbn:ANd9GcSpCRkUc1Ka2IQZEZEkd1V2XUrxH3L_Ac3XJueGiqzqMO5zLS6lHAINe0oMPTs8q6d6
+![] (https://t1.gstatic.com/licensed-image?q=tbn:ANd9GcSpCRkUc1Ka2IQZEZEkd1V2XUrxH3L_Ac3XJueGiqzqMO5zLS6lHAINe0oMPTs8q6d6)
 
 ## Informacion
 Es la ciudad más poblada de los Estados Unidos y una de las más densamente pobladas a nivel mundial, con un área urbana de veinticuatro millones de habitantes. Desde finales del siglo xix es uno de los centros de la política y la economía mundial, albergando la sede de la Organización de las Naciones Unidas y de numerosas empresas e instituciones financieras de importancia global. Nueva York​ ejerce influencia a escala global en los medios de comunicación, la política, la educación, la arquitectura, el entretenimiento, las artes y la moda. Por todo ello, se considera una de las ciudades más globalizadas del planeta, con una gran diversidad cultural.

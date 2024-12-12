@@ -5,3 +5,6 @@ Nueva York incluye 5 distritos que se ubican donde el río Hudson desemboca en e
 
 ## Recomendacion
 Visitar manhattan y la estatua de la libertad
+
+## Foto
+![]https://t1.gstatic.com/licensed-image?q=tbn:ANd9GcSpCRkUc1Ka2IQZEZEkd1V2XUrxH3L_Ac3XJueGiqzqMO5zLS6lHAINe0oMPTs8q6d6

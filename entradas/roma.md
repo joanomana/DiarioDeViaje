@@ -5,3 +5,6 @@ Las ruinas antiguas como las del Foro y el Coliseo evocan el poder del antiguo I
 
 ## Recomendacion
 Visita las ruinas aun existentes del imperio romano
+
+## Foto
+![]https://static.nationalgeographic.es/files/styles/image_3200/public/colosseum-daylight-rome-italy.webp?w=1600&h=900
